@@ -11,7 +11,9 @@ de contacto es por via ([instagram](https://www.instagram.com/alocpe_/))
 mis aficciones son pocas que son jugar videojuegos y creackear peliculas en mediafire
 
 ## Educacion:
-Primaria, ESO, Primer grado medio
+**Primaria** 
+**ESO** 
+**Primer grado medio**
 
 ## Experencia labotal: 
 ninguno
@@ -20,7 +22,7 @@ ninguno
 ninguno
 
 ## Habilidades: 
-tengo buenos reflejos
+(> tengo buenos reflejos)
 
 ## Redes sociales: 
 ([instagram](https://www.instagram.com/alocpe_/))
