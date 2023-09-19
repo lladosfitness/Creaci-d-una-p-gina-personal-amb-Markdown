@@ -34,7 +34,7 @@ de contacto es por via* ([instagram](https://www.instagram.com/alocpe_/))
 ![](https://agora.xtec.cat/insdesantacoloma/wp-content/uploads/usu1849/2018/10/IMG_20181031_100729-300x225.jpg)
 
 ## Projectos destacados: 
-ninguno
+![](https://www.chiapasparalelo.com/wp-content/uploads/2016/10/ninguno-300x300.jpg)
 
 ## Habilidades: 
 (>tengo buenos reflejos)
