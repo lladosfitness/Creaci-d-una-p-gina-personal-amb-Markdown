@@ -12,7 +12,9 @@ mis aficciones son pocas que son jugar videojuegos y creackear peliculas en medi
 
 ## Educacion:
 -**Primaria** 
+
 -**ESO** 
+
 -**Primer grado medio**
 
 ## Experencia labotal: 
