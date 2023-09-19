@@ -26,4 +26,5 @@ tengo buenos reflejos
 instagram, facebooki, youtube y spotify
 
 ## Fotografia: 
-ninguna
+(!(https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.motorwebargentina.com%2F2023%2F08%2Fnuevo-bmw-serie3-2024-argentina%2F&psig=AOvVaw0aPqBBWc22NqEGo4Sha3OM&ust=1695207982891000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCOCziYDEtoEDFQAAAAAdAAAAABAD)
+
