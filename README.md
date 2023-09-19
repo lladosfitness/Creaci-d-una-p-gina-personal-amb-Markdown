@@ -9,7 +9,7 @@ de contacto es por via* ([instagram](https://www.instagram.com/alocpe_/))
 
 ## Aficciones i intereses: 
 **mis aficciones son pocas que son**
-
+```markdown
 1. jugar videojuegos
 
 2. creackear peliculas en mediafire
