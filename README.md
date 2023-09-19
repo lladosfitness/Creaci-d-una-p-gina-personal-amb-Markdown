@@ -20,6 +20,7 @@ de contacto es por via* ([instagram](https://www.instagram.com/alocpe_/))
 
 5. tirar piedras al rio
 
+```
 ## Educacion:
 -[Primaria](https://agora.xtec.cat/ceipferrandesagarra/)
 
