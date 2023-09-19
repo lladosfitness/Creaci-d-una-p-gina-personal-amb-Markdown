@@ -5,7 +5,7 @@
 
 ## Datos personales:
 Alejandro Ocampo Peña, Santa coloma de Gramanet y mi informacion
-de contacto es por via discord, reddit o whatsapp
+de contacto es por via ([instagram](https://www.instagram.com/alocpe_/))
 
 ## Aficciones i intereses: 
 mis aficciones son pocas que son jugar videojuegos y creackear peliculas en mediafire
