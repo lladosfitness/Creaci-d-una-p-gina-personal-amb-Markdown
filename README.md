@@ -18,7 +18,8 @@ mis aficciones son pocas que son jugar videojuegos y creackear peliculas en medi
 -**Primer grado medio**
 
 ## Experencia laboral:
-Vendedor de entradas en el tunel del terror en mi antigua escuela 
+Vendedor de entradas en el tunel del terror en mi antigua escuela
+ 
 ![](https://agora.xtec.cat/insdesantacoloma/wp-content/uploads/usu1849/2018/10/IMG_20181031_100729-300x225.jpg)
 
 ## Projectos destacados: 
