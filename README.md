@@ -37,7 +37,8 @@ de contacto es por via* ([instagram](https://www.instagram.com/alocpe_/))
 ![](https://www.chiapasparalelo.com/wp-content/uploads/2016/10/ninguno-300x300.jpg)
 
 ## Habilidades: 
-(>tengo buenos reflejos)
+*tengo buenos reflejos*
+![](https://srv.latostadora.com/designall.dll/feel_like_a_ninja_meme--i:14138515109514138513;d:151095;w:240;b:2B3039;m:1.jpg)
 
 ## Redes sociales: 
 ([instagram](https://www.instagram.com/alocpe_/))
