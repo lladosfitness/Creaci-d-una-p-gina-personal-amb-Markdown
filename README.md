@@ -38,6 +38,7 @@ de contacto es por via* ([instagram](https://www.instagram.com/alocpe_/))
 
 ## Habilidades: 
 *tengo buenos reflejos*
+
 ![](https://srv.latostadora.com/designall.dll/feel_like_a_ninja_meme--i:14138515109514138513;d:151095;w:240;b:2B3039;m:1.jpg)
 
 ## Redes sociales: 
