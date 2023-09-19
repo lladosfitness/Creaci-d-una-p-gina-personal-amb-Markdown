@@ -23,7 +23,7 @@ ninguno
 tengo buenos reflejos
 
 ## Redes sociales: 
-instagram, facebooki, youtube y spotify
+([instagram](https://www.instagram.com/alocpe_/))
 
 ## Fotografia:
 (![El coche que quiero](https://www.motorwebargentina.com/wp-content/uploads/2023/08/BMW-Serie-3-2024-2.jpg))
