@@ -1,7 +1,7 @@
 # Creaci-d-una-p-gina-personal-amb-Markdown
 
 ## Introduccion:
- Hola Soy Alejandro Ocampo Peña, y me gusta comer
+Hola Soy Alejandro Ocampo Peña, nacido en el 2006 que reside en [Santa coloma de Gramanet](https://www.google.es/maps/place/Santa+Coloma+de+Gramenet,+Barcelona/@41.4505701,2.1861265,14z/data=!3m1!4b1!4m6!3m5!1s0x12a4bc87d8dda1f5:0x62a5c003c7b27b8!8m2!3d41.4445879!4d2.2103217!16s%2Fg%2F11cn60m1rf?entry=ttu) que su ocupacion es estudiante, con nacionalidad española y colombiana, que estudia en el [El Puig Castella](https://www.google.es/maps/place/Institut+p%C3%BAblic+Puig+Castellar/@41.4566188,2.1996779,17.58z/data=!4m6!3m5!1s0x12a4bcf3c7a3aa23:0x9711d34b7cfe4e4f!8m2!3d41.4554767!4d2.2015741!16s%2Fg%2F1q5ccd875?entry=ttu)
 
 ## Datos personales:
 *Alejandro Ocampo Peña, Santa coloma de Gramanet y mi informacion
