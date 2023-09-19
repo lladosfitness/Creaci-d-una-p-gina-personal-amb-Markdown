@@ -10,8 +10,15 @@ de contacto es por via* ([instagram](https://www.instagram.com/alocpe_/))
 ## Aficciones i intereses: 
 **mis aficciones son pocas que son**
 
-jugar videojuegos 
-creackear peliculas en mediafire
+1. jugar videojuegos
+
+2. creackear peliculas en mediafire
+
+3. debatir sobre peliculas y fandoms
+
+4. pelear en discord
+
+5. tirar piedras al rio
 
 ## Educacion:
 -[Primaria](https://agora.xtec.cat/ceipferrandesagarra/)
